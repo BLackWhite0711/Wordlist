@@ -15,7 +15,7 @@
 
 - baik untuk diri sendiri 
 - dan baik untuk orang lain 
+- menurut anda itu baik ,lakukanlah
 
-- menurut anda itu baik ,lakukanlah*
 
 - * Masa Depan Milik Mereka yang Mendengar dan Mendatanginya 
