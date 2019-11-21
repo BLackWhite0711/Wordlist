@@ -6,7 +6,7 @@
 *Karna apa disini kami memberikan wordlist*
 *bukan sekedar wordlist biasa*
 
-*Gabungkanlah apa yg kamu ketahui dengan wordlist itu,jangan anda melihat titik di suatu kertas yg anda buat,tapi lihat lah disekitar titik hitam tadi!!,apa yang anda lihat? ya benar !! ,yang anda lihat adalah putihnya sih kertas itu tadi
+*Gabungkanlah apa yg kamu ketahui dengan wordlist itu,jangan anda melihat titik di suatu kertas yg anda buat,tapi lihat lah disekitar titik hitam tadi!!,apa yang anda lihat? ya benar !! ,yang anda lihat adalah putihnya sih kertas itu tadi*
 
 *memperbaiki berbeda dengan merusaknya*
 *merusak belum tentu bisa memperbaiki*
