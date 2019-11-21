@@ -9,14 +9,13 @@
 *Gabungkanlah apa yg kamu ketahui dengan wordlist itu,*
 *jangan anda melihat titik di suatu kertas yg anda buat,* 
 *tapi lihat lah disekitar titik hitam tadi!!,*
-*apa yang anda lihat? ya benar ! ,*
-*yang anda lihat adalah putihnya sih kertas itu tadi *
+*apa yang anda lihat? ya benar !! ,yang anda lihat adalah putihnya sih kertas itu tadi *
 
 *memperbaiki berbeda dengan merusaknya*
 
-*sikap baik terdiri dari 2 *
-*baik untuk diri sendiri *
-*dan baik untuk orang lain *
+- *sikap baik terdiri dari 2
+- baik untuk diri sendiri 
+- dan baik untuk orang lain 
 
 *menurut anda itu baik ,lakukanlah*
 
